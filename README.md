@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @aydenhamtech
+- 👀 I’m interested in Blockchain, Web3, and metaverse 
+- 🌱 I’m currently learning Blockchain
+- 😄 Pronouns: He / Him
